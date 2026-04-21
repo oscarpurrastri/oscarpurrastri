@@ -3,6 +3,6 @@ Working on this when i have time pls follow me if ya wanna <3
 
 <img width="212" height="212" alt="Untitled179_20260421162946" src="https://github.com/user-attachments/assets/1bc049b8-55f6-4892-8d57-1c2597d6ac9e" />
 
+<img width="736" height="615" alt="Untitled176_20260421161313" src="https://github.com/user-attachments/assets/87a4eeff-a2ad-413d-96ac-4aa3e43dd17f" />
 
-<img width="536" height="515" alt="Untitled176_20260421161313" src="https://github.com/user-attachments/assets/e9deba59-d519-4d14-a204-ea93c16ba96c" />
 
