@@ -1,6 +1,6 @@
 
 
-lazy readme hiii uh: <img width="20" height="20" alt="MBXRMWM" src="https://github.com/user-attachments/assets/99da5617-337f-44b1-8407-c237d2c180d6" />
+lazy readme hiii : <img width="20" height="20" alt="MBXRMWM" src="https://github.com/user-attachments/assets/99da5617-337f-44b1-8407-c237d2c180d6" />
 
 ![](https://komarev.com/ghpvc/?username=urgituser&label=_+++piastris+++_&black=addorange&style=plastic&base=74)
 
@@ -21,8 +21,7 @@ lazy readme hiii uh: <img width="20" height="20" alt="MBXRMWM" src="https://gith
 
 
 
-[Straw](https://rikiiyukisverison.straw.page/)
-
+[Straw](https://rikiiyukisverison.straw.page/) <--- cool info abt me! 
 
 
 
