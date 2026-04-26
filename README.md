@@ -1,3 +1,5 @@
+<img width="548" height="260" alt="IMG_5857" src="https://github.com/user-attachments/assets/ca57b51f-7a26-4bdc-9e96-e2a811c45f77" />
+
 readme is still a wip : <img width="20" height="20" alt="MBXRMWM" src="https://github.com/user-attachments/assets/99da5617-337f-44b1-8407-c237d2c180d6" />
 
 
@@ -23,5 +25,6 @@ readme is still a wip : <img width="20" height="20" alt="MBXRMWM" src="https://g
 
 
 
+<img width="548" height="260" alt="IMG_5857" src="https://github.com/user-attachments/assets/57e97cba-292c-420f-8de4-4dc8ec6f0126" />
 
 
